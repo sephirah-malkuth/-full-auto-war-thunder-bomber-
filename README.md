@@ -8,7 +8,7 @@
 > 如果你是付费购买的本软件，说明你**被骗了**！请立即申请退款并举报商家。
 > 本项目严禁用于任何商业用途，严禁打包倒卖。
 >
-> **Project URL:** [https://github.com/Sephirah-Malkuth/-Full-Auto-War-Thunder-Bomber-_v5.0](https://github.com/Sephirah-Malkuth/-Full-Auto-War-Thunder-Bomber-_v5.0)
+> **Project URL:** [https://github.com/Sephirah-Malkuth/-Full-Auto-War-Thunder-Bomber-]([https://github.com/Sephirah-Malkuth/-Full-Auto-War-Thunder-Bomber-]
 
 ---
 
